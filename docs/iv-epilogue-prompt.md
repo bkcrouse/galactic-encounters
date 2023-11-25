@@ -1,0 +1,3 @@
+### Prompt
+
+Here are the comic book strips for the Epilogue of 'Galactic Encounters: The Chronicles of Rael and Zylo,' crafted to match the established art style. These panels visually conclude the saga, showing an aged Commander Rael and Zylo reflecting on their journey, the inspiration their stories have provided to various species, and the next generation setting off to chart their own course in the universe. This final chapter captures the enduring spirit of adventure and the timeless bond of friendship.
